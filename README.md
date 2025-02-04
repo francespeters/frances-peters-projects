@@ -1,2 +1,2 @@
 # frances-peters-projects
-# IN PROGRESS!
+# IN PROGRESS.
